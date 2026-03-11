@@ -10,6 +10,8 @@
 
 ## Children after Grandparents
 - Son: Mike "Black Caps & Warriors Fan" Williams (lives in Christchurch)
+-Grandson: Liam (12, future All Black, CHristchurch)
+-Granddaughter:Mia (8, White Ferns fanatic)
 - Grandson Liam (12, future All Black, Christchurch)
 - Granddaughter: Mia (8, White Ferns fanatic)
 - Daughter: Sarah "UFC Fan Williams" (lives in Queenstown, Israel Adesanya supporter)
